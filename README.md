@@ -12,7 +12,7 @@
 ## Location Preferences
 >
 
-## About `AI Group`
+## About `AI.Group`
 >
 
 ## Experiences
